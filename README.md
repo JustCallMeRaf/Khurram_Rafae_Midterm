@@ -5,4 +5,4 @@ Kayla Cooper
 My dinosaur choice is Brachiosaurus
 
 Rafae Khurram
-My dinosaur choice is Pterodactyl ---NO!
+My dinosaur choice is Pterodactyl 
